@@ -1,1 +1,1 @@
-# lsoss.github.io
+# lsoss.com
